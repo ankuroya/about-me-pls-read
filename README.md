@@ -2,3 +2,4 @@
 
 hai hai hai !! i'm uh you can call me anon/anku/kuroya/kuro idc pls i love my oc                                                             
 i eat hanta sero for breakfast denki kamiinari for lunch and ojiro mashirao for dinner (dinner is the best plate guys trust)
+the only straight ship i like is izuocha, the others idk guysss.,.,.,. u're kinda forced nglllglglgl i mean izuocha is fine but ojikami is js betterrrrr /hj ,.,.,.,.,
