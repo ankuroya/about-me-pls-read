@@ -1,5 +1,5 @@
 ![image](https://github.com/user-attachments/assets/0e1c6cb5-5298-4baf-b2fd-9e590dba7e39)
-^^ me and the bois paige sin and amonnn 🤪🤪🤪 im sero ignore mina idlike mina and idk who else to call a part of the gang ngl                         
+^^ me and the bois paige koby and amonnn 🤪🤪🤪 im sero ignore mina idlike mina and idk who else to call a part of the gang ngl                         
 
 hai hai hai !! i'm uh you can call me anon/anku/kuroya/kuro idc pls i love my oc                                                             
 i eat hanta sero for breakfast denki kamiinari for lunch and ojiro mashirao for dinner (dinner is the best plate guys trust) ||
